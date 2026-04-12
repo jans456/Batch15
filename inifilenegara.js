@@ -1,0 +1,1 @@
+//  nmakan bagi biar sehat
